@@ -1,1 +1,1 @@
-# Owner @ [discord.gg/CTT](https://discord.gg/CTT)
+# @ [discord.gg/CTT](https://discord.gg/CTT)
