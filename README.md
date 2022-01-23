@@ -1,1 +1,1 @@
-# @ [discord.gg/CTT](https://discord.gg/CTT)
+# @ [discord.gg/CTT](https://discord.com/invite/aPVMJy78Pa)
