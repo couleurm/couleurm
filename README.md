@@ -1,8 +1,5 @@
 
-[![alita banner](https://i.imgur.com/dvLsEJI.png)](https://manganatos.com/battle-angel-alita-last-order-chapter-1#1) 
-<h6 align="right">
-read gunnm
-</h6>
+[![alita banner](https://i.imgur.com/dvLsEJI.png)](https://archive.org/details/battle-angel-alita-volume-1_202212/Battle%20Angel%20Alita%20%28Volume%201%29/) 
 
 ### find the coul
 
